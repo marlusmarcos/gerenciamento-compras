@@ -1,0 +1,1 @@
+# Simples-anotaçao para compras
